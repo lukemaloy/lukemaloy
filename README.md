@@ -1,4 +1,4 @@
-### Hi there, I'm Luke
+### Hi there, I'm Luke :wave:
 
 I'm an undergraduate CS student with an interest in applying my skills to Christian ministry work.
 
